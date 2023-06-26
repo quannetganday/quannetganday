@@ -1,16 +1,17 @@
-### Hi there 👋
+### Quán Net Gần Đây
 
-<!--
-**quannetganday/quannetganday** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Quannetganday com – Nơi bạn có thể tìm Quán Net gần nhất xung quanh bạn Tổng hợp những quán Nét gần đây
 
-Here are some ideas to get you started:
+- Địa chỉ: 539 Nguyễn Thị Thập, Tân Phong, Quận 7, Thành phố Hồ Chí Minh
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- SDT: 0896565123
+
+Cyber Game là mô phỏng buôn bán phòng máy internet cao cấp, quy mô lớn, đầu cơ mạnh từ setup phòng máy, nhà cung cấp, ko gian để mang lại cho người chơi những nhà cung cấp chơi game tốt nhất, Cyber Game thường được đầu tư sở hữu số lượng máy to trong khoảng 100 máy trở lên , phối hợp với những nhà sản xuất khác như ăn uống, cocktail, trà sữa…
+
+https://quannetganday.com/
+
+https://www.tumblr.com/quannetganday
+
+https://gab.com/quannetganday
+
+https://www.deviantart.com/quannetganday
